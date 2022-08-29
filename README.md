@@ -26,3 +26,45 @@ _Principales Funciones_
 * Gestión de Proyectos de construcción: Puente sobre Quebrada la Pacaya, losas de concreto en caminos cantonales al INDER, fueron aprobados por 300 millones de colones.
 * Monitoreo socioambiental del proyecto MOP-BID en San Gerardo de Dota.
 * Creación de Comités de caminos y coordinación con Asociaciones de Desarrollo Integral.
+
+# EDUCACIÓN Y CAPACITACIÓN
+## Universidad de Costa Rica
+* Maestría Académica en Gestión Integrada del Recurso Hídrico. En proceso.  
+* Licenciatura en Economía Agrícola y Agronegocios con énfasis en Agroambiente.2022.   
+* Bachillerato en Economía Agrícola y Agronegocios. 2008 – 2011.
+
+## CICAP-UCR
+* Técnico en liderazgo de equipos de alto rendimiento. 2016  
+* Técnico en Planificación Estratégica. 2016
+
+## Ministerio de Ambiente Panamá-Jica
+Curso Internacional en Ecosistemas con Enfoque Participativo en Manejo Integrado de Cuencas Hidrográficas. 2020
+
+## Colegio de Ingenieros Agrónomos de Costa Rica
+* Incorporación 2013. Carné 7527  
+* Avalúo de Bienes Inmuebles agropecuarios. 2015
+
+# HABILIDADES BLANDAS
+
+## Aptitudes 
+* Planes de Seguridad del Agua
+* Comunicación con población rural
+* Objetivos del desarrollo Sostenible. Agua-Equidad de género
+* Administración
+* Análisis estadístico SPSS.
+* Transferencia de tecnología
+* Desarrollo Agropecuario
+
+## Capacidades
+* Inglés Intermedio
+* Paquete de Microsoft nivel avanzado
+* Arc Gis y Q Gis nivel básico
+* Licencia B1
+
+
+
+
+
+
+
+
