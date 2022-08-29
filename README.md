@@ -1,5 +1,5 @@
-# Curriculum
-Currículum Vitae
+# Currículum Vitae
+
 ![image](https://user-images.githubusercontent.com/111821645/187260272-c7224f65-1ae1-4184-aee8-14fa9c8bceef.png)
 
 ## Rosario Ureña Mena
