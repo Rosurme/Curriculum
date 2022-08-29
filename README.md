@@ -21,7 +21,7 @@ _Principales Funciones_
 
 ## Promotora Social de la Unidad Técnica de Gestión Vial
 Municipalidad de Dota. Junio 2015 – Julio 2016  
-Coordinación interinstitucional para el desarrollo de proyectos de inversión en infraestructura vial. Reuniones con las comunidades para conocer y coordinar los proyectos solicitados, con aporte de la comunidad. Gestión para la capacitación de la comunidad en mantenimiento de caminos por medio del MOPT-BID. Gestión del empleo temporal de 80 personas por 3 meses para limpieza de caminos por MTSS.
+Coordinación interinstitucional para el desarrollo de proyectos de inversión en infraestructura vial. Reuniones con las comunidades para conocer y coordinar los proyectos solicitados, con aporte de la comunidad. Gestión para la capacitación de la comunidad en mantenimiento de caminos por medio del MOPT-BID. Gestión del empleo temporal de 80 personas por 3 meses para limpieza de caminos por MTSS.  
 _Principales Funciones_
 * Gestión de Proyectos de construcción: Puente sobre Quebrada la Pacaya, losas de concreto en caminos cantonales al INDER, fueron aprobados por 300 millones de colones.
 * Monitoreo socioambiental del proyecto MOP-BID en San Gerardo de Dota.
