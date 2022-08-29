@@ -13,7 +13,7 @@ Formación profesional dirigida al desarrollo del sector agropecuario. Experienc
 # EXPERIENCIA
 ## Administradora del Departamento de Acueducto
 Municipalidad de Dota. Agosto 2016 – Agosto 2022  
-Planificación; desarrollo de proyectos de inversión, presupuestos, actualización de tarifas. Impulso de la toma de decisiones con criterio técnico: estudio y aplicación de la legislación de calidad del servicio agua potable; gestión para el levantamiento topográfico y georreferenciación de los activos. Aumento en un 30% el presupuesto anual ordinario disponible entre 2016 y 2020, y por medio de gestión de cobro se redujo la morosidad del 10% al 4%.  
+Planificación; desarrollo de proyectos de inversión, presupuestos, actualización de tarifas. Impulso de la toma de decisiones con criterio técnico: estudio y aplicación de la legislación de calidad del servicio agua potable; gestión para el levantamiento topográfico y georreferenciación de los activos. Aumento en un 30% el presupuesto anual ordinario disponible entre 2016 y 2020, y por medio de gestión de cobro se redujo la morosidad del 10% al 4%.   
 _Principales Funciones_
 * Gestión de alianzas público-privadas para protección del Recurso Hídrico.
 * Proyecto finalizado: “Mejoramiento de la distribución de agua potable en Santa María de Dota”
